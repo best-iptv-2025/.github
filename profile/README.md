@@ -1,5 +1,5 @@
 # Best IPTV: The Ultimate Honest Review
-
+<meta name="google-site-verification" content="vZjdSic2--GZnfyTCYSjOk9BfspEpkCT-8FwP9e-dCg" />
 ## Introduction
 
 Are you looking for the best IPTV services available? We've got you covered! Check out our **in-depth, honest review** of the **top IPTV providers** to help you make an informed decision.
